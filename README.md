@@ -1,1 +1,1 @@
-Piotr, 23770, Grupa C6
+Piotr Dardas, 23770, Grupa C6
